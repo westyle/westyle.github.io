@@ -1,1 +1,0 @@
-# westyle.github.io
